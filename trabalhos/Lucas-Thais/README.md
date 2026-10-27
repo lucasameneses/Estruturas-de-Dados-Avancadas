@@ -2,7 +2,7 @@
 
 ## Equipe
 
-Lucas (matrícula XXXXXX) e Thais (matrícula XXXXXX)
+Lucas Alves Meneses (matrícula 603270) e Thais Farias Cardoso (matrícula 603292)
 
 ## Descrição
 
